@@ -1,2 +1,2 @@
 # AutoCall
-cocok sekali buat anda yang suka isenk
+monmaap masi under reconstruction
