@@ -1,2 +1,5 @@
 # AutoCall
-monmaap masi under reconstruction
+cuma work kalo satu jaringan
+gaguna
+
+skip aj
